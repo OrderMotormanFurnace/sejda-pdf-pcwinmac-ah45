@@ -1,4 +1,4 @@
-# 
+# Principal Sejda PDF plugins para Mac OS | Actualizado Sejda PDF plugins para PC Windows. Con cálculo de impuestos y estimación de reembolsos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
